@@ -1,3 +1,4 @@
 Sasha Gray 
-Alexis Texas
+Stoya
 Mia Khalifa
+Hitome Tanaka
